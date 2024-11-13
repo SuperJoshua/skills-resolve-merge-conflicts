@@ -1,3 +1,5 @@
 # References
 
-* octocat 1 😈
+- Satan
+- Bhudda
+- Muhammad
